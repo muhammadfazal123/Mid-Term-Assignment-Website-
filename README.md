@@ -1,2 +1,2 @@
 # Mid-Term-Assignment-Website-
-Website in underconstructions when it's complete we will publish here.
+The website in under construction when it's complete we will publish it here.
